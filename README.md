@@ -7,4 +7,4 @@
 
 **Jorge Falcon, 41 años, Temperley
 
-**Maxi Cartier
+**Maxi Cartier. Edad: 31. Ciudad de Residencia: Zárate, Bs As.
