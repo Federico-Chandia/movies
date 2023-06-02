@@ -3,7 +3,7 @@
 
 **Federico Chandia, 26 años, Magdalena, Bs As.
 
-**Fernando Herrera
+**Fernando Herrera, 32 años, San Salvador Jujuy.
 
 **Jorge Falcon, 41 años, Temperley
 
