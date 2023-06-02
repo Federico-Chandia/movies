@@ -1,10 +1,10 @@
 *PROYECTO MOVIES
 *Integrantes:
 
-**Federico Chandia
+**Federico Chandia, 26 años, Magdalena, Bs As.
 
 **Fernando Herrera
 
-**Jorge Falcon
+**Jorge Falcon, 41 años, Temperley
 
 **Maxi Cartier
